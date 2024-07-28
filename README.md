@@ -1,9 +1,5 @@
-- PublicCode
+# VAZE
 
-- DeepCraft / META Client Developer
-- https://dc.cerya.de
-- https://info.cerya.de
-
-- ----------------
-18 y/o
-Batch, C#, bash, python and Java
+[Discord](https://dsc.gg/node-js)
+[YouTube](https://youtube.com/@vaze_yt)
+[OTHER](https://guns.lol/vazeyt)
