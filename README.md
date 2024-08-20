@@ -1,5 +1,7 @@
 # About Me
 **Hello 👋,
+
+
 🥚 I'm Sid Damian Juda Gruppe and I program all kinds of things. (At least I always claim that I can code)** 🥚
 
 🥚 **My YouTube channel often a lot of carelessly bullshit** 🥚
