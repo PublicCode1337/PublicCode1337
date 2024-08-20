@@ -1,8 +1,8 @@
 # About Me
 **Hello 👋,
-I'm PublicCode and I program all kinds of things.**
+🥚 I'm Sid Damian Juda Gruppe and I program all kinds of things. (At least I always claim that I can code)** 🥚
 
-**My YouTube channel often features Trolling and programming videos.**
+🥚 **My YouTube channel often a lot of carelessly bullshit** 🥚
 
 
 ### Languages:
@@ -14,18 +14,245 @@ I'm PublicCode and I program all kinds of things.**
 </p>
 
 ## Social Media
-[![YouTube](https://img.shields.io/badge/HackV0gel-%23E4405F.svg?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@HackV0geI)
-[![Discord](https://img.shields.io/badge/HackV0gel-blue.svg?color=4682B4&style=for-the-badge&logo=discord&logoColor=white)](https://dsc.gg/bka)
+[![YouTube](https://img.shields.io/badge/HackV0gel-%23E4405F.svg?style=for-the-badge&logo=youtube&logoColor=white)](https://www.youtube.com/@RyuguDev)
+[![Discord](https://img.shields.io/badge/HackV0gel-blue.svg?color=4682B4&style=for-the-badge&logo=discord&logoColor=white)](https://discord.gg/freebuild)
 
 
 ## My Skills
-- **Java**
-- **JavaScript (NodeJS)**
-- **PHP**
-- **SQL**
-- **HTML**
-- **CSS**
-- **Network Administration**
-- **System Administration**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
+- **Talking Bullshit**
 
 
